@@ -2,6 +2,7 @@
 
 
 
-##Estudar todos os dias
-Ajudar a arrumar a casa
-Brincar com as Crianças
+##Estudar todos os dias,
+Ajudar a arrumar a casa,
+Brincar com as Crianças,
+Trabalhar
